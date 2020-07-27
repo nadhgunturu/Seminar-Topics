@@ -1,2 +1,2 @@
-# Seminar-Topics
-For All Final Year Students
+# Seminar Topics
+For All Final Year Students 

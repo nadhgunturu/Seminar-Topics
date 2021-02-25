@@ -1,7 +1,7 @@
 # Seminar Topics
 
 
-For All Final Year Students 
+For All Students 
 
 
 Documentations and Power Point Presentations are Available Here for Corresponding Topics
